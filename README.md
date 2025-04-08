@@ -1,1 +1,2 @@
 # Algorithm
+I TRY SO HARD AND GOT SO FAR~~
